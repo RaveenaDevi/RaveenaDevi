@@ -43,7 +43,7 @@ Hi, I'm **Raveena Devi**, a passionate developer dedicated to crafting exception
 
 ## 🌟 Let's Connect!
 
-📧 Email: [raveenadevi.dev@gmail.com](mailto:raveenadevi.2105@gmail.com)  
+📧 Email: [raveenadevi2105@gmail.com](mailto:raveenadevi2105@gmail.com)  
 💼 LinkedIn: [Raveena Devi](https://www.linkedin.com/in/raveenadevi/)  
 🖥️ Portfolio: *(Coming soon!)*
 
